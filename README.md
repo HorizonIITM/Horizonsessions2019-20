@@ -12,5 +12,5 @@ https://drive.google.com/a/smail.iitm.ac.in/file/d/1ZwF59zgftPg-G0WYV8eVQL7cTd-_
 ## Astro Week session 2 : Surfing Gravitational Waves
 https://photos.app.goo.gl/rkus3EuggMgPzKgF9
 
-## Astro Week session 1 : Cosmos: The Dark World
+## Astro Week session 3: Cosmos: The Dark World
 https://photos.app.goo.gl/rkus3EuggMgPzKgF9
